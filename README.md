@@ -13,4 +13,5 @@ https://github.com/Alisha483/my-web/blob/643fb3351c4b0a22d446be4ae66750882b194ed
 ![ImageAlt6](https://github.com/Alisha483/my-web/blob/c280edca3e2e5db90155bd5b11b5289c4f799bc4/alisha.jpeg/brownbeans-removebg-preview-removebg-preview.png)
 https://github.com/Alisha483/my-web/blob/c280edca3e2e5db90155bd5b11b5289c4f799bc4/alisha.jpeg/brownbeans-removebg-preview.png
 
-![brownbeans](https://github.com/user-attachments/assets/4b5edfed-e001-4047-8438-772a4af064b2)
+![greenbeans-removebg-preview](https://github.com/user-attachments/assets/b8e48875-f46d-43f0-a812-5b24cb3eaef1)
+

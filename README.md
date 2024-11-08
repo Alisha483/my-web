@@ -8,9 +8,9 @@ https://github.com/Alisha483/my-web/blob/643fb3351c4b0a22d446be4ae66750882b194ed
 https://github.com/Alisha483/my-web/blob/643fb3351c4b0a22d446be4ae66750882b194eda/alisha.jpeg/OIP.jfif
 ![ImageAlt2](https://github.com/Alisha483/my-web/blob/c280edca3e2e5db90155bd5b11b5289c4f799bc4/alisha.jpeg/OIP__2_-removebg-preview.png
 )
-![ImageAlt4](https://github.com/Alisha483/my-web/blob/c280edca3e2e5db90155bd5b11b5289c4f799bc4/alisha.jpeg/achaht.jfif)
-![ImageAlt5](https://github.com/Alisha483/my-web/blob/c280edca3e2e5db90155bd5b11b5289c4f799bc4/alisha.jpeg/bkw.jfif)
-![ImageAlt6](https://github.com/Alisha483/my-web/blob/c280edca3e2e5db90155bd5b11b5289c4f799bc4/alisha.jpeg/brownbeans-removebg-preview-removebg-preview.png)
+![alisha1](https://github.com/Alisha483/my-web/blob/c280edca3e2e5db90155bd5b11b5289c4f799bc4/alisha.jpeg/achaht.jfif)
+![Imgbrown](https://github.com/Alisha483/my-web/blob/c280edca3e2e5db90155bd5b11b5289c4f799bc4/alisha.jpeg/bkw.jfif)
+![bbbb](https://github.com/Alisha483/my-web/blob/c280edca3e2e5db90155bd5b11b5289c4f799bc4/alisha.jpeg/brownbeans-removebg-preview-removebg-preview.png)
 https://github.com/Alisha483/my-web/blob/c280edca3e2e5db90155bd5b11b5289c4f799bc4/alisha.jpeg/brownbeans-removebg-preview.png
 
 ![greenbeans-removebg-preview](https://github.com/user-attachments/assets/b8e48875-f46d-43f0-a812-5b24cb3eaef1)
